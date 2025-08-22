@@ -8,4 +8,4 @@ Create a Factory
 Up next:
 Blood debt!!
 
-KEY: PRIVATE
+GET KEY IN DISCORD https://discord.gg/xy3G5q8TKU
